@@ -1,4 +1,4 @@
-# AWS Training In Btm: The Complete Guide for 2026 — Updated June
+# AWS Training In Btm  2026: Trends, Tips and Career Paths — Part 1
 
 Best AWS Training in btm — Complete Guide 2026
 
